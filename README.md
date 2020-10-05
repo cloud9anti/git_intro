@@ -1,1 +1,3 @@
-Eric Ianni
+Alexander McGrath
+mcgratal@oregonstate.edu
+blue
